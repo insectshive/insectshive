@@ -1,6 +1,6 @@
 hii!!!!!!!!! im bee i go by some other names but those dont matter,,, 
 if u wanna learn more about me check my links ;P
-https://colormytree.me/2024/01JE4SB6E7G7ACQES6NDG84DFG
+
 
 i am against things that are harmful to self or others, including - proshipping, pro-con paras, not encouraging therapy for people who need it.
 dni if you support or like any of those things /srs
