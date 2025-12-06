@@ -7,6 +7,9 @@ dni if you support or like any of those things /srs
 
 dni github user SLIMEOFCICLE and ranboo (u know who u r) /j
 
+
+color mine tree https://colormytree.me/2025/01JE4SB6E7G7ACQES6NDG84DFG
+
 <!--
 **insectshive/insectshive** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
